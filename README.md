@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on blackoilymen
 - 📫 How to reach me: blackoilymen
 - 😄 Pronouns: black/oilymen
-- ⚡ Fun fact: bees make honey
+- ⚡ Fun fact: bees make honey 🗣🗣🗣🗣💯💯💯
 
 <!---
 iloveoblackoilymen/iloveoblackoilymen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
